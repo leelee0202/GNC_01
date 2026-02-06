@@ -1,1 +1,1 @@
-#연결
+# GNCGNCGNCGNC
